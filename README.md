@@ -1,1 +1,0 @@
-# Serikov-s-homework
